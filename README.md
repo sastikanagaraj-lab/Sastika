@@ -1,5 +1,5 @@
 
-# Hi 👋 I'm Sastika N
+# Hello guyss!!  I'm Sastika Nagaraj 🤎 
 
 🎓 B.Tech AI & Data Science Student  
 🤖 Interested in Artificial Intelligence & Machine Learning  
